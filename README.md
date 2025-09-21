@@ -1,0 +1,1 @@
+# fuckmyschool.github.io
